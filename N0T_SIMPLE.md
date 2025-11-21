@@ -1,0 +1,3 @@
+# N0T_S1MPL3
+
+Maximilus, the hacker turned "HERO", faces an evil cyborg. The cyborg is lethal, but as our hero finds out soon enough, vulnerable. The cyborg has an override command. Our hero spots something that seems like that command, and says it out loud to the cyborg. But to his surprise, that didn't work. It seems the security is not as simple as it seems. But he can't give up yet. Not yet. THe answer is just there. Lurking behind the shadows. Help our hero recover the override command. 
